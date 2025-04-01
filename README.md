@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SamWillDesign
-- 🌱 I’m currently learning coding. 2025
+- 🌱 I’m currently learning coding - 2025
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have pet ferrets
 - I'll graduate with my BFA in Photography at The University of Massachusetts Darmouth in 2025
