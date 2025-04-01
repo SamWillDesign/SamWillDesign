@@ -4,7 +4,7 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have pet ferrets
 - I'll graduate with my BFA in Photography at The University of Massachusetts Darmouth in 2025
-- I'm interested in Photography, Marketing, and Logo design
+- I'm interested in working involved with Photography, Marketing, and Logo design
 
 <!---
 SamWillDesign/SamWillDesign is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
