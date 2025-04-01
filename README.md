@@ -2,7 +2,9 @@
 - 👀 I’m interested in multiple different fields of art, including Photography & Digital Art.
 - 🌱 I’m currently learning coding. 2025
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I have pet ferrets 
+- ⚡ Fun fact: I have pet ferrets
+- Ill graduate with my BFA in Photography at The University of Massachusetts Darmouth in 2025
+- Im interested in Photography, Marketing, and Logo design
 
 <!---
 SamWillDesign/SamWillDesign is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
