@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @SamWillDesign
-- 👀 I’m interested in multiple different fields of art, including Photography & Digital Art.
 - 🌱 I’m currently learning coding. 2025
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have pet ferrets
